@@ -4,7 +4,7 @@ see you space cowboy
 27 x
 28 x
 29 x
-30
+30 x
 1
 2
 3
