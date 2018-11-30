@@ -31,6 +31,3 @@ see you space cowboy
 24
 25
 26
-
-
-6
