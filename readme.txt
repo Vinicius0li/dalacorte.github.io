@@ -1,12 +1,12 @@
-see you space cowboy :)
+see you space cowboy
 
 26 x
 27 x
 28 x
 29 x
 30 x
-1
-2
+1 x
+2 
 3
 4
 5
